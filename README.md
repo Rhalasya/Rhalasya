@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 👋 I'm Elen
 
 Perkenalkan nama saya **Rhalasya Eleina Putri**.<br>
 
